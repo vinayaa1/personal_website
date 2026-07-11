@@ -1,2 +1,2 @@
 ﻿# Vinaya Ayinampudi
-## https://www.linkedin.com/in/vinaya-ayinampudi-3b79ab287/
+## https://vinayaa1.github.io/personal_website/
